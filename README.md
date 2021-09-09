@@ -1,3 +1,1 @@
-### Hi there 👋
-
-- 🫀 I’m currently working on surviving
+### 我寄吧谁？
